@@ -1,4 +1,4 @@
-# 
+# XMind for Windows ultimate Tool: custom-styles & cloud-sync offers the most advanced XMind for Windows tool, with custom-styles and cloud-sync. Ideal for Windows professionals.
 
 
 
